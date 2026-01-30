@@ -1,5 +1,5 @@
 Ingredients:
- - Gin
+ - Hendricks (recommended) Gin
  - Lime peel
  - Ice
  - Something
